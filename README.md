@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shraykumar16
+- 👋 Hi, I’m @shrayk16
 - 👀 I’m interested in Automation, Robotics, and Coding.
 - 🌱 I’m currently learning coding skills.
 - 💞️ I’m looking to collaborate on Robotics and automation projects.
