@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @shrayk16
+- 👀 I’m interested in Automation, Robotics, and Coding.
+- 🌱 I’m currently learning coding skills.
+- 💞️ I’m looking to collaborate on Robotics and automation projects.
+- 📫 Feel free to reach out to me at shraykumarofficial@gmail.com .
+- 😄 Pronouns: he/him.
+- ⚡ Fun fact: I enjoy listening to Hip Hop, Pop, and Golden Bollywood music.
